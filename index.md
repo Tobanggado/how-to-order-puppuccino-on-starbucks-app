@@ -1,37 +1,21 @@
-## Welcome to GitHub Pages
+<h1>How To Order Puppuccino On Starbucks App</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-order-puppuccino-on-starbucks-app/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Iced Matcha Tea Latte</a></li><li><a href="#toc-1">Is Starbucks Uk Dog Friendly?</a></li><li><a href="#toc-2">Starbucks Has A Secret Menu Merchandise</a></li><li><a href="#toc-3">Deaf Child Hears Mother And Pop's Voice For The Primary Time</a></li><li><a href="#toc-5">Is A Puppuccino Protected For My Dog?</a></li><li><a href="#toc-7">Iced Coffee With Milk</a></li></ul></div>
+<p>Starbucks Puppuccino is an unofficial doggie drink on the Secret Menu at Starbucks. We go there after each dog park go to for the cream and I always buy one thing. We usually get one Puppuccino for our two dogs to share. Puppuccinos are free, although it’s not nice kind to waltz right into a café and ask for a freebie with out ordering anything else.</p>
+<div style='text-align:center'><iframe width='561' height='316' src='https://www.youtube.com/embed/QWaYm0p-AM8' frameborder='0' alt='how to order puppuccino on starbucks app' allowfullscreen></iframe></div>
+<p>Also, you need to solely request a Puppucinno when your canine is with you. The exception is Starbucks places which may be inside other establishments, similar to a bookstore or supermarket. This kind of location generally does not serve Puppuccinos. Every good canine deserves a deal with once in a while, an a Puppuccino is essentially the most adorable method to reward them.</p>
+<h2 id="toc-0">Iced Matcha Tea Latte</h2>
+<p>Starbucks happily offers these to pups accompanying their human’s espresso runs. Puppuccinos gained recognition as Starbucks lovers shared photographs of canines snout-deep in Starbucks cups. Because Puppuccinos aren’t on the Starbucks official menu, you won’t see it listed as an merchandise on the app. Unlike different Starbucks secret menu gadgets, Starbucks baristas will know what a Puppuccino is, so you'll be able to order it by name. To order a puppuccino, you merely have to ask for it on the counter or drive-through window if you place the the rest of your order.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>See each step to bring your pet from Brazil to the USA. Whipped cream is mostly fine for canines, as lengthy as they don’t have an excessive amount of. … McDonald’s may not have a pup menu, but you can order a grilled hen on your pup or maybe a couple of licks of your soft-serve vanilla. But, it’s best to get it with a paid drink or leave a tip if you’re simply getting the Puppuccino and nothing else. Whenever you herald your own reusable cup, mug or journey tumbler or buy a Starbucks plastic reusable journey cup for $2 to take pleasure in the same savings. A three-cheese mix melted between buttery, toasted sourdough bread.</p>
+<h3 id="toc-1">Is Starbucks Uk Canine Friendly?</h3>
+<p>If you do not ask for water, you ought to have about twice the tea. The Starbucks Coffee Company is broadly often identified as one of the costly espresso chains in the world. The value of a Starbucks espresso varies not solely between the sizes and completely different drinks on the Starbucks menu but also in accordance with the country in which you buy that frappuccino. Giving this candy treat to your pup every single day and even each different week is extraordinarily unhealthy. If however, you determine to only give this deal with to your pup every now and then or once each couple of months, your canine will keep joyful and healthier for much longer. Look like a VIP for your Insta peeps by asking for holiday drinks per week or two early.</p>
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-order-puppuccino-on-starbucks-app/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>Just like we couldn’t stop you from giving your dog a chocolate crossiant from our bakery. So, do with that you will however as a dog owner and a 5 plus 12 months Starbucks worker I would never give my canine a “puppucinno”. If that is your puppy’s first time having a Puppuccino, undoubtedly start with one small pup cup and see if he has any reactions to it.</p>
+<h3 id="toc-2">Starbucks Has A Secret Menu Merchandise</h3>
+<p>"I emailed them back and stated ''I don't want a gift card for your store because I'm not going to be a buyer once more, it's pointless''." 'She had the puppuccino, ate the biscuit, went to go and get a drink of water and then she lay in her mattress and obviously that's when she died, she choked however it was silent,' Harrison mentioned. Harrison of Crewe, England, was horrified to see her 18-month-old French bulldog puppy Bonnie had died after finishing her deal with. Her and her fiancé spent 10 minutes attempting to take away the biscuit and doing CPR, but was unable to keep away from wasting the pet, she stated.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How a lot is a Babyccino in Starbucks?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>It's a bewitching concoction of a mocha frappe with Dutch Bros “Kicker Mix” which is half and half mixed with something wonderful with added Torani Chocolate Macadamia Nut syrup which was obviously invented by a GENIUS (sung opera style). ... Dogs love Dutch Bros because of the world well-known “Puppaccino”.</p></div>  </div></div>
+<p>It’s a favourite passive-aggressive trick of cafe workers all over the place who really feel they’re being handled rudely. If you are at an workplace or shared community, you can ask the community administrator to run a scan throughout the community on the lookout for misconfigured or infected devices. “Time is cash,” they say and nobody likes to face in long strains. But, Murphy’s Law knows that the extra you rush to get to work, the longer the line is to get your espresso. It’s almost as if everyone else is rushing to work, too. This can cause your “quick Starbucks run” to make you late for work.</p>
+<h2 id="toc-3">Deaf Child Hears Mother And Pa's Voice For The First Time</h2>
+<p>I discover the simplest method to keep on prime of the promotions is to follow Starbucks on Facebook. If you’re in a bunch of four of order a pot of the French press coffee for $5.ninety. Six ways to get your pumpkin spice latte fixwithout taking out a loan. And don’t forget the free drink in your birthday. Along with getting free brewed espresso and tea refills, Starbucks Rewards members get a free custom drink after they earn a hundred and fifty factors.</p>
+<ul><li>Enable push notifications on the Starbucks app to get alerted to the times when you can save massive by your self or with a pal.</li><li>According to Foodbeast, a Puppuccino is just a Starbucks cup with slightly little bit of whipped cream inside.</li><li>Going out to get a cup of espresso at Starbucks is often a enjoyable outing for each you and your canine.</li></ul>
